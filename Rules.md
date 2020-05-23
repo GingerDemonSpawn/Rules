@@ -36,4 +36,4 @@ No annoying, loud or high pitch noises.
 Reduce the amount of background noise, if possible.
 Moderators reserve the right to disconnect you from a voice channel if your sound quality is poor.
 Moderators reserve the right to disconnect, mute, deafen, or move members to and from voice channels.
-*Thanks!* :+1:
+*Thanks!* :+1: :+1:
